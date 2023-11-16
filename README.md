@@ -4,4 +4,4 @@ Studying M.Sc. Mathematics in Science and Engineering at TUM, having interest on
 
 Through my analytic perspective that I gain from engineering education and my curiosity about 
 exploring new things, I would like to be involved international diversified firms’ data science and AI
-teams to find long-term growth opportunities
+teams to find long-term growth opportunities.
